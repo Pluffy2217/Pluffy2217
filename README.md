@@ -1,7 +1,10 @@
 ### alo
 An undergrad
+
 I like rats
+
 discord: pluffy#4282
+
 Mail me at prathamkl17@gmail.com
 
 <!--
